@@ -3,4 +3,3 @@
 - 🌱 I’m currently learning: uhh graphic design I guess
 - 💞️ no collabs.
 - 📫 How to reach me: don't
-- 🗣 Languages I speak: Polish (native), English and Russian
